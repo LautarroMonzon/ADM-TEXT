@@ -1,7 +1,8 @@
 🔑 ▫️▫️ [App oficial de『𝑪𝑼𝑺𝑻𝑶𝑴 𝑺𝑬𝑹𝑽𝑬𝑹 ™] ▫️▫️ 🔑 
 
-Nueva actualizacion Disponible, Version 12.0.0
-Para usuarios ABONO.
+Nueva actualizacion Disponible, Version 16.0.0
+Fecha 01/07/2022
+Para usuarios PREPAGO.
 [Para soporte y servicio técnico puedes comunicarte con la opcion de WHATSAPP Enviando la palabra : "Hola Kirbi". Soporte tecnico 24/7.]
 
 ✨Gracias! por Contratar Custom Servers.✨
